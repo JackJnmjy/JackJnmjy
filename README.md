@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @JackJnmjy
+- 👋 Hi, I’m @JackJnmjy (Web Designer)
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning code like pro...
 - 📫 How to reach me jackjanmejay@gmail.com
